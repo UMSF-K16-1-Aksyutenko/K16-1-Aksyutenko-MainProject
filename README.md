@@ -1,1 +1,1 @@
-# K16-1-Aksyutenko-MainProject
+Aksyutenko Oleg Ruslanovich
